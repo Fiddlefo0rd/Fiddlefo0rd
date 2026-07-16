@@ -5,7 +5,7 @@
 <p align="center">        
 <img src="https://files.catbox.moe/3mjdcn.gif" width="15"> $\color{#D1E8FC}{ ຽᥥ֪ 7teen 𓏵　𓈒 TADC Era   }$
 <p align="center">   
-  <a href=https://rentry.org/fidds_"> My rentry</a> $\color{#D1E8FC}{ and, dont forget to }$ <a href="https://fiddleford.atabook.org/"> sign my atabook</a>
+  <a href=https://rentry.org/fidds_"> My rentry</a> $\color{#D1E8FC}{ and }$ <a href="https://fiddleford.atabook.org/"> sign my atabook</a>
   <p align="center">   
 <img src="https://files.catbox.moe/ezjyb6.gif" width="15"> $\color{#D1E8FC}{ ）graphic  by  :  healingPoet💧𝄂ᦡ}$
 <p align="center">         

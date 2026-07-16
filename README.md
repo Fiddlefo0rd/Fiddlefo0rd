@@ -7,6 +7,6 @@
 <p align="center">   
   <a href=https://rentry.org/fidds_"> My rentry</a> $\color{#FEF5D4}{ and }$ <a href="https://fiddleford.atabook.org/"> sign my atabook</a>
   <p align="center">   
-<img src="https://files.catbox.moe/ezjyb6.gif" width="15"> $\color{#9FE6EE}{ ）Royalteeth．lover ﹑ 🧩 ﹕ }$
+<img src="https://i.imgur.com/zX33ief.gif" width="22"> $\color{#9FE6EE}{ ）Royalteeth．lover ﹑ 🧩 ﹕ }$
 <p align="center">         
 <img src="https://64.media.tumblr.com/900435f5e1e188d8f3c7cebbdd7630bb/1a0bd8a997af9343-5c/s400x600/69c3f135077ebfa7e0ee377c300b9ee787399bb6.gifv" width="400">

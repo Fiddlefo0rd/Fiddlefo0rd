@@ -3,7 +3,7 @@
 <p align="center">      
 <img src="https://64.media.tumblr.com/bf5509a4ffc93430e94a13b5f3c17454/fe8248f2ec395d07-9a/s1280x1920/872cb4fcc7ce4d49f48c69d5f871ca8022a59c62.pnj" width="400">
 <p align="center">        
-<img src="https://files.catbox.moe/3mjdcn.gif" width="15"> $\color{#F994C1}{ ຽᥥ֪ 7teen 𓏵　𓈒 TADC Era   }$
+<img src="https://i.imgur.com/AsPZHTV.gif" width="22"> $\color{#F994C1}{ ຽᥥ֪ 7teen 𓏵　𓈒 TADC Era   }$
 <p align="center">   
   <a href=https://rentry.org/fidds_"> My rentry</a> $\color{#FEF5D4}{ and }$ <a href="https://fiddleford.atabook.org/"> sign my atabook</a>
   <p align="center">   

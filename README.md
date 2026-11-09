@@ -1,12 +1,18 @@
 <p align="center">   
-<img src="https://64.media.tumblr.com/900435f5e1e188d8f3c7cebbdd7630bb/1a0bd8a997af9343-5c/s400x600/69c3f135077ebfa7e0ee377c300b9ee787399bb6.gifv" width="400">
-<p align="center">      
-<img src="https://64.media.tumblr.com/bf5509a4ffc93430e94a13b5f3c17454/fe8248f2ec395d07-9a/s1280x1920/872cb4fcc7ce4d49f48c69d5f871ca8022a59c62.pnj" width="400">
-<p align="center">        
-<img src="https://i.imgur.com/AsPZHTV.gif" width="22"> $\color{#F994C1}{ ຽᥥ֪ 7teen 𓏵　𓈒 TADC Era   }$
-<p align="center">   
-  <a href="https://rentry.org/fidds_"> My rentry</a> $\color{#FEF5D4}{ and }$ <a href="https://fiddleford.atabook.org/"> sign my atabook</a>
-  <p align="center">   
-<img src="https://i.imgur.com/zX33ief.gif" width="22"> $\color{#9FE6EE}{ ）Royalteeth．lover ﹑ 🧩 ﹕ }$
-<p align="center">         
-<img src="https://64.media.tumblr.com/900435f5e1e188d8f3c7cebbdd7630bb/1a0bd8a997af9343-5c/s400x600/69c3f135077ebfa7e0ee377c300b9ee787399bb6.gifv" width="400">
+<img width="991" height="578" alt="image" src="https://github.com/user-attachments/assets/72c7ccc8-a41b-4b94-94fd-1852a986be96" />
+<p align="center">     
+  
+<p align="center">  
+𓊈 
+⠀  <a href="https://fiddz.straw.page">Strawpage </a>   ︵
+   <a href="https://rentry.org/fidds_">Rentry </a>   ︵   
+ <a href="https://fiddleford.atabook.org/">Atabook</a>    𓊉
+  
+</p> 
+<p align="center"> 
+   <br> $\color{grey}{\textsf{ GUNSHOW shipper era }}$ <br> 
+   <br> $\color{grey}{\textsf{ Follow me and sign my Ata, i'm very cool or smtg like that }}$ <br> 
+  
+<p align="center"> 
+<img src="https://img.shields.io/badge/♡-02/22/2009-c5c3c6?labelColor=55555" />
+<p align="center"> 
